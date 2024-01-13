@@ -23,4 +23,4 @@ Day 10 - Fragile
 
 Day 11 - The Right Stimulus
 
-Day 12 - Crying In Cibersecuruty Language
+Day 12 - Crying In Cibersecurity Language

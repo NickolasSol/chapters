@@ -27,6 +27,20 @@ Day 12 - Crying In Cibersecurity Language
 
 Day 13 - Smiling In Cibersecurity Language
 
-Day 14 - A Calm day
+Day 14 - Breathe... A Calm day
 
 Day 15 - Python
+
+Day 16 - Starting In Python Language
+
+Day 17 - Clothes
+
+Day 18 - Be Your Best Friend
+
+Day 19 - Allana's Birthday
+
+Day 20 - Life Is A Strange Thing
+
+
+
+

@@ -49,3 +49,9 @@ Day 23 - Don't Worry! It'll Get Worse!!
 
 Day 24 - Living Between InfoSec And Cinema
 
+Day 25 - A New Journey
+
+Day 26 - Work Bitch
+
+Day 27 - A Crazy Day
+

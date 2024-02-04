@@ -55,3 +55,16 @@ Day 26 - Work Bitch
 
 Day 27 - A Crazy Day
 
+Day 28 - Film Production Assistant
+
+Day 29 - I Would Like To Be THE ACTOR
+
+Day 30 - Bureaucracy
+
+Day 31 - Sad
+
+Day 32 - It's Confusing Be Me
+
+Day 33 - I'm A Wall
+
+Day 34 - Study Again & Again

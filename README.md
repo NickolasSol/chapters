@@ -68,3 +68,25 @@ Day 32 - It's Confusing Be Me
 Day 33 - I'm A Wall
 
 Day 34 - Study Again & Again
+
+Day 35 - New Rules 
+
+Day 36 - Goodbye Again!
+
+Day 37 - Amber
+
+Day 38 - Ó Pai Ó
+
+Day 39 - Why So Sad?
+
+Day 40 - More Projects
+
+Day 41 - Rough
+
+Day 42 - To Fuc% You
+
+Day 43 - Nature
+
+Day 44 - Sweet 
+
+Day 45 - Expectations

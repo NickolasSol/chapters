@@ -92,3 +92,5 @@ Day 44 - Sweet
 Day 45 - Expectations
 
 Day 46 - There Is A Change Coming
+
+Day 47 - Queues, Traffic and Hugs

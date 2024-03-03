@@ -94,3 +94,36 @@ Day 45 - Expectations
 Day 46 - There Is A Change Coming
 
 Day 47 - Queues, Traffic and Hugs
+
+Day 48 - Tarot
+
+Day 49 - Tarot II
+
+Day 50 - Amber II 19 fev
+
+Day 51 - Fail 
+
+Day 52 - Magic
+
+Day 53 - To Help Friends
+
+Day 54 - Meme
+
+Day 55 - I Want That
+
+Day 56 - Shadow Ring
+
+Day 57 - Keep Going
+
+Day 58 - Really?!
+
+Day 59 - Trying To Work
+
+Day 60 - Au revoir
+
+Day 61 - Ayahuasca
+
+Day 62 - Feeling The Power
+
+Day 63 - 
+
